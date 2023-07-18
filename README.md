@@ -13,7 +13,7 @@ In addition, I also like high-speed trains, bullet trains and inter-city trains.
 
 （最好安装了屏蔽门，比如福田之类的）
 
-(It's better to install a shielded door, such as Futian)
+(It's better to install  platfrom gates , such as Futian)
 
 #### Code 代码？
 其实，我的英语不太好，只会一些基础的Java
