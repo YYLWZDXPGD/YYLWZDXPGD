@@ -21,3 +21,22 @@ In addition, I also like high-speed trains, bullet trains and inter-city trains.
 其实，我的英语不太好，只会一些基础的Java
 
 In fact, my English is not very good. I only know some basic Java.
+
+#### Contact me？联系我·？
+请优先使用以下方案
+
+Please prioritize the following options
+
+电子邮箱|Email：XPGD_LHMTR@outlook.com
+
+Microsoft|BiliBili|QQ：稳重的小喷菇丁
+
+XBOX（Minecraft）：WZDXPGD11451
+
+网易我的世界|WY Minecraft：小喷菇丁
+
+不要用下面的，因为我无法翻墙
+
+Please prioritize using the following solution instead of using the one below, as I am unable to climb over the wall
+
+Google，Twitter
