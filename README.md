@@ -35,8 +35,8 @@ XBOX（Minecraft）：WZDXPGD11451
 
 网易我的世界|WY Minecraft：小喷菇丁
 
-不要用下面的，因为我无法翻墙
+Twitter：WZDXPGD
 
-Please prioritize using the following solution instead of using the one below, as I am unable to climb over the wall
+（不推荐推特，因为我不常用）
 
-Google，Twitter
+(Twitter is not recommended as I don't use it frequently)
