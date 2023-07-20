@@ -35,8 +35,7 @@ XBOX（Minecraft）：WZDXPGD11451
 
 网易我的世界|WY Minecraft：小喷菇丁
 
+下面的如果不是迫不得已就不要用！
+
 Twitter：WZDXPGD
 
-（不推荐推特，因为我不常用）
-
-(Twitter is not recommended as I don't use it frequently)
