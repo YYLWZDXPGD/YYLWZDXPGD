@@ -37,5 +37,7 @@ XBOX（Minecraft）：WZDXPGD11451
 
 下面的如果不是迫不得已就不要用！
 
-Twitter：WZDXPGD
+Don't use the following if you don't have to!
+
+Twitter/Google：WZDXPGD
 
