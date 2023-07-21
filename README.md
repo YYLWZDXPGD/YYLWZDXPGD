@@ -39,5 +39,5 @@ XBOX（Minecraft）：WZDXPGD11451
 
 Don't use the following if you don't have to!
 
-Twitter/Google：WZDXPGD
+Twitter/Google：wzdxpgd50938
 
