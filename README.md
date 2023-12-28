@@ -18,9 +18,9 @@ In addition, I also like high-speed trains, bullet trains and inter-city trains.
 (It's better to install  platfrom gates , such as Futian)
 
 #### Code 代码？
-其实，我的英语不太好，只会一些基础的Java
+其实，我的英语不太好，只会一些基础的Java,Json,html和css
 
-In fact, my English is not very good. I only know some basic Java.
+In fact, my English is not very good. I only know some basic Java,Json,html and css.
 
 #### Contact me？联系我·？
 请优先使用以下方案
